@@ -1,2 +1,2 @@
 # Abinash-trial-
-Hey I am Abinaash Pandey. I am learning new things.
+Hey I am Abinash Pandey. I am learning new things.
